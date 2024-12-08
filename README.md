@@ -1,18 +1,49 @@
-- 👋 Hi, I’m @illicitjulius![339b9c4f880f1a6bc0286b785f89b135](https://github.com/user-attachments/assets/977edf59-55fa-42b9-9ab9-f05498878c57)
-😎Mr. Unique😎
-👑Insta King 👑
-🔥Fashion Blogger🔥
-😋Foodie 🥘🌭🥪
-🎵Music Lover🎶
-😍Love U Mom&Dad👪
-- 👀 I’m interested in  ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me @liajus_julius ...
-- 😄 Pronouns:𝔍🅤𝖑𝕚𝖚𝖘 ...
-- ⚡ Fun fact:i love memes😹🙌🏿 ...
+![339b9c4f880f1a6bc0286b785f89b135](https://github.com/user-attachments/assets/50b78d59-a937-4a54-8274-73d66d7a7ff3)
+TURBO-MD
 
-<!---
-JuliusMose/JuliusMose is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+
+
+
+𝐇𝐄𝐑𝐄 𝐈𝐒 𝐓𝐇𝐄 𝐏𝐑𝐎𝐆𝐑𝐄𝐒𝐒 𝐅𝐎𝐑 TURBO-MD
+CarlTech-Followers
+
+Stars
+
+Forks
+
+Size
+
+  
+
+
+illicitjulius :: Visitor's Count
+
+HOW TO GET TURBO-MD
+Typing SVG
+
+FORK-REPO
+
+
+
+Typing SVG
+
+GET-SESSION ID HERE
+
+ Typing SVG
+
+𝐅𝐎𝐑 𝐎𝐍𝐄-𝐓𝐀𝐏 𝐃𝐄𝐏𝐋𝐎𝐘𝐌𝐄𝐍𝐓 𝐔𝐒𝐄 𝐓𝐇𝐈𝐒 𝐁𝐔𝐓𝐓𝐎𝐍
+🕳IF YOU DON'T HAVE A HEROKU ACCOUNT...CREATE ONE
+
+CREATE-ACCOUNT
+
+💫IF YOU ALREADY HAVE A HEROKU ACCOUNT...DEPLOY NOW
+
+DEPLOY-ON HEROKU
+
+Typing SVG
+
+
+
+
+
+
